@@ -1,0 +1,2 @@
+# latihanku
+pertama
